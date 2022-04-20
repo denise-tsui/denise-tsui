@@ -1,4 +1,4 @@
-## ․·✿ﾟ Hello, I'm Denise! 👋
+## ⋰◦✿ﾟ·․ Hello, I'm Denise! 👋
 * 🌱 3A Mechatronics Engineering student at the University of Waterloo
 * 📧 Email: denise.tsui@uwaterloo.ca | LinkedIn: [denise-tsui](https://www.linkedin.com/in/denise-tsui/)
 
